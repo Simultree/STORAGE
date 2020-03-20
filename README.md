@@ -1,0 +1,2 @@
+# STORAGE
+NEW ！ NEW ！ NEW！
